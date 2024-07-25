@@ -107,35 +107,33 @@ Peer review volunteer service for: Journal of Experimental Biology, Apidologie, 
 * Empowering wild bee microbiome research and working toward phyllosphere management. Phoenix, Arizona. _Forthcoming in November, 2024_. Makaylee Crone and Phuong Ngyuen.
   
 #### Extension Workshops and Presentations 
-Invited speaker for Bucks County Beekeepers Association, 2020 and 2022
-Organizer for Queen Rearing Workshop, Texas A&M, 2017 and 2018
-Volunteer for Central Texas Beekeepers Association’s Beekeeping School, 2018
-Volunteer for Brazos Valley Beekeepers Bee School, 2017        
-Community Outreach 
-Native plant conservation and outreach day, York University BEEC, 2024
-Scientist volunteer, Pollinator Investigator children's summer camp, Center for Pollinator Research, 2021 and 2023. 
-Cavity-nesting bee booth organizer, Pollination Celebration, Center for Pollinator Research, 2022.
-1st grade classroom visit, “What’s it like to be(e) a scientist?”, Penn State, 2021
-Instructor and organizer, “What’s it like to be(e) a scientist?” children's workshop with Schlow Library, 2020
-Organizer for the Great Insect Fair butterfly tent, Penn State, 2019
-Instructor and curriculum organizer for the Penn State College of Education “Pollinators Around Us” workshops (3), 2019  
-Organizer for the Centre County Wild About Animals Event insect booth, 2019 
-Volunteer for the Great Insect Fair, Penn State, 2018
-Instructor for the Discovery Space Girls Leadership Opportunity Week Pollinator Workshop, 2018
-Volunteer for the annual Entomological Society of America Southwestern Branch Insect Exposition, 2018
+* Invited speaker for Bucks County Beekeepers Association, 2020 and 2022
+* Organizer for Queen Rearing Workshop, Texas A&M, 2017 and 2018
+* Volunteer for Central Texas Beekeepers Association’s Beekeeping School, 2018
+* Volunteer for Brazos Valley Beekeepers Bee School, 2017        
+* Community Outreach 
+* Native plant conservation and outreach day, York University BEEC, 2024
+* Scientist volunteer, Pollinator Investigator children's summer camp, Center for Pollinator Research, 2021 and 2023. 
+* Cavity-nesting bee booth organizer, Pollination Celebration, Center for Pollinator Research, 2022.
+* 1st grade classroom visit, “What’s it like to be(e) a scientist?”, Penn State, 2021
+* Instructor and organizer, “What’s it like to be(e) a scientist?” children's workshop with Schlow Library, 2020
+* Organizer for the Great Insect Fair butterfly tent, Penn State, 2019
+* Instructor and curriculum organizer for the Penn State College of Education “Pollinators Around Us” workshops (3), 2019  
+* Organizer for the Centre County Wild About Animals Event insect booth, 2019 
+* Volunteer for the Great Insect Fair, Penn State, 2018
+* Instructor for the Discovery Space Girls Leadership Opportunity Week Pollinator Workshop, 2018
+* Volunteer for the annual Entomological Society of America Southwestern Branch Insect Exposition, 2018
 
-Extension Articles and Products 
-How to help pollinators thrive in your garden, Makaylee Crone and Laurie Flanagan, https://www.pollinator.org/nappc/pesticide-education
-Seeding Hope: Community members breathe life into the new Pollinator and Bird Garden at Penn State, Makaylee Crone, https://ento.psu.edu/news/seeding-hope-bringing-together-community-members-to-breathe-life-into-the-new-pollinator-and-bird-garden-at-penn-state
-Engaging children in STEM during a pandemic, Makaylee Crone and Sarah Kania, https://ento.psu.edu/news/engaging-children-in-stem-during-a-pandemic
-Finding the nutritional “sweet spot” for honey bees, Makaylee Crone https://sites.psu.edu/egso/notes-from-the-field/
-Pollinators Around Us Workshop Curriculum, Makaylee Crone, Rong Ma, Katherine Giles, and Christina Grozinger 
+#### Extension Articles and Products 
+* How to help pollinators thrive in your garden, Makaylee Crone and Laurie Flanagan, https://www.pollinator.org/nappc/pesticide-education
+* Seeding Hope: Community members breathe life into the new Pollinator and Bird Garden at Penn State, Makaylee Crone, https://ento.psu.edu/news/seeding-hope-bringing-together-community-members-to-breathe-life-into-the-new-pollinator-and-bird-garden-at-penn-state
+* Engaging children in STEM during a pandemic, Makaylee Crone and Sarah Kania, https://ento.psu.edu/news/engaging-children-in-stem-during-a-pandemic
+* Finding the nutritional “sweet spot” for honey bees, Makaylee Crone https://sites.psu.edu/egso/notes-from-the-field/
+* Pollinators Around Us Workshop Curriculum, Makaylee Crone, Rong Ma, Katherine Giles, and Christina Grozinger 
 https://sites.psu.edu/augmentedlearning/about-us/stem-pillars/curricula-overview/
-What are those bees doing at your library?, Makaylee Crone https://ento.psu.edu/news/2019/what-are-those-bees-doing-at-your-library
-Monarch Butterflies and You, Makaylee Crone and Jon Elmquist
-https://ento.psu.edu/pollinators/resources-and-outreach/podcasts-videos-and-online-games-from-cpr-members
-Monarch Butterfly Release, Jon Elmquist and Makaylee Crone 
-https://ento.psu.edu/pollinators/resources-and-outreach/podcasts-videos-and-online-games-from-cpr-members
+* What are those bees doing at your library?, Makaylee Crone https://ento.psu.edu/news/2019/what-are-those-bees-doing-at-your-library
+* Monarch Butterflies and You, Makaylee Crone and Jon Elmquist https://ento.psu.edu/pollinators/resources-and-outreach/podcasts-videos-and-online-games-from-cpr-members
+* Monarch Butterfly Release, Jon Elmquist and Makaylee Crone https://ento.psu.edu/pollinators/resources-and-outreach/podcasts-videos-and-online-games-from-cpr-members
 
 
 
