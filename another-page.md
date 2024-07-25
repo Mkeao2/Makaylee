@@ -5,22 +5,13 @@ description: MakayleeKCrone@gmail.com
 ---
 
 ### EDUCATION AND EXPERIENCE 
-2023-2024  Postdoctoral Fellow, York University, North York, ON. 
+2023-2024  Postdoctoral Fellow, York University, North York, ON.  _Supervisor: Sandra Rehan_
 
-_Supervisor: Sandra Rehan_
-
-
-2018-2023  Ph.D. Ecology, The Pennsylvania State University, University Park, PA. 
-
-_Advisors: Christina Grozinger and David Biddinger_
-
+2018-2023  Ph.D. Ecology, The Pennsylvania State University, University Park, PA. _Advisors: Christina Grozinger and David Biddinger_
 
 2016-2018  B.S Bioenvironmental Science, Texas A&M University, College Station, TX. 
 
-
-2017-2018	 Undergraduate Research Associate, Department of Entomology. 
-
-_Advisor: Juliana Rangel_ 
+2017-2018	 Undergraduate Research Associate, Department of Entomology. _Advisor: Juliana Rangel_ 
 
 ### AWARDS 
 * Ralph O. Mumma Graduate Award, Penn State, 2022 ($2,500)
@@ -92,7 +83,7 @@ Led review lectures, created review materials, coordinated labs, and graded assi
 #### Article peer-review 
 Peer review volunteer service for: Journal of Experimental Biology, Apidologie, Environment International, Proceedings of the National Academy of Sciences, Basic and Applied Ecology, PeerJ, and Journal of Hymenoptera Research. 
 
-#### Committee and organization service
+#### Committee service
 * Ecology Diversity and Inclusion Committee, Penn State (Volunteer) 2020-2021
 * North American Pollinator Protection Campaign, Pesticide Education Task Force (Volunteer) 2019-2021 
 * Entomology Outreach Committee (Volunteer), Penn State, 2018- 2019
